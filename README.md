@@ -1,6 +1,6 @@
 # disocrd-Nuker-and-Tokens-and-to-etc.V3
-***only can use it in windowns*** 
-***you have to close ***
+***only can use it in windowns***      ***you have to close ***
+
 ![unknown (1)](https://user-images.githubusercontent.com/59527022/168452808-481a3cd9-3c34-4b40-8a78-4d23ed8ba9ad.png)
 
 
